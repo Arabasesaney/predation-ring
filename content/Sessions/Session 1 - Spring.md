@@ -7,7 +7,7 @@
 
 However, they knew their people would not be safe for long. There were whispers of terrible [[Tyrants]] that ruled the land with fear. In order to truly save their people, our heroes would need to break the [[Ring of Predation]], and drive the [[Tyrants]] from this land.
 
-# Village#
+# Village #
 
 ## Projects ##
 [[Arthur No-Mane]] led an effort to build an palisade around the new settlement of [[Elmbridge]]. Constructed of earth and woven grasses, it will help protect his people. 
@@ -21,7 +21,7 @@ Two villagers were introduced.
 
 [[Methusael]], an ancient gray-whiskered Mouse. He is becoming senile, and talks amiably about the olden days. He doesn't quite understand that they have journeyed to a new home, and misses his late wife Thistleflower.
 
-# Adventure#
+# Adventure #
 During the season of Spring, [[Arthur No-Mane]] and [[Pascal]] ventured outward to survey the [[High Grass Meadow]] and sort out it's dangers.
 
 ## Tall Dead Pine - Vantage ##
