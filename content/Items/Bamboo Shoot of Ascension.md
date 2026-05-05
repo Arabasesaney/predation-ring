@@ -1,0 +1,1 @@
+A perpetually green shoot of bamboo carved with eldritch runes. Planting it in the earth and watering it causes it grow tremendous height near instantaneously. It can be used a ladder for climbing.

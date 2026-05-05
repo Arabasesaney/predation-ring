@@ -1,0 +1,1 @@
+A flowing waterfall rumored to have restorative powers. It is located in the [[High Grass Meadow]]. It irrigates the land near [[Elmbridge]].

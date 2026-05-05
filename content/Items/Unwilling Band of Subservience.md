@@ -1,0 +1,1 @@
+A ring, if worn, will find the wearer into service to whoever wears the [[Unyielding Band of Mastery]].

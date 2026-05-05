@@ -1,0 +1,1 @@
+The Tyrants make up the Ring of Predation. These fearsome gods must be toppled to bring peace to the land.

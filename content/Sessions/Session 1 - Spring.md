@@ -15,16 +15,11 @@ However, they knew their people would not be safe for long. There were whispers 
 [[Pascal]] began combing the lands for seeds to start agriculture. High grass was cut down and cleared to make way for fields. The fields were plowed with the help of Beetles and irrigated by the Spring rain.
 
 ## Villagers ##
-Two villagers were introduced.
-
-[[Timothy Titmouse]], a tiny Tufted Titmouse who adores [[Arthur No-Mane]] and [[Pascal]]. He is a little bit chubby and is often found scarfing seeds he shouldn't be. He can be found practicing with a twig sword chopping down grasses.
-
-[[Methusael]], an ancient gray-whiskered Mouse. He is becoming senile, and talks amiably about the olden days. He doesn't quite understand that they have journeyed to a new home, and misses his late wife Thistleflower.
-
+Two villagers were introduced: [[Timothy Titmouse]] and [[Methusael]].
 # Adventure #
 During the season of Spring, [[Arthur No-Mane]] and [[Pascal]] ventured outward to survey the [[High Grass Meadow]] and sort out it's dangers.
 
-## Tall Dead Pine - Vantage ##
+## Tall Dead Pine ##
 To get a lay of the land, [[Arthur No-Mane]] and [[Pascal]] ventured to a nearby 100-year old pine, now dead. There was an incident while making the climb: forcing the noble [[Arthur No-Mane]] to cut his rope and fall to the bottom to save [[Pascal]]. Luckily, his armor cushioned the blow and got away unscathed.
 
 [[Pascal]] got a good look at the land, and found several sites of interest to explore nearby.
@@ -36,7 +31,7 @@ A burrow dug into a mossy wet log caught their interest. Looking inside, our her
 
 [[Pascal]] shapeshifted into an inchworm and distracted the Opossum. Together, the heroes pushed [[Yazcabal, Occult Opossum]] down the chute and drove him off. The opossum's parting words referenced a [[Cult of the Drowned Rat]] and someone named [[Lorelei]].
 
-Raiding the cultist's alter, they found a strange ring left behind: the [[Master's Ring of Subservience]].
+Raiding the cultist's alter, they found a strange ring left behind: the [[Unyielding Band of Mastery]].
 
 ## Fortress of the Crystal Rat ##
 On the walk through the high grass, they bumped into [[Lysa Lightfoot]] who had stolen a bag of valuables from the rats in the [[Fortress of the Crystal Rat]]. The rats were in hot pursuit and a standoff ensued. The rats were badly afflicted with [[Crystalpox]], and [[Arthur No-Mane]] made a plea to let [[Lysa Lightfoot]] in exchange for healing their curse.

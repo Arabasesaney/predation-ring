@@ -1,0 +1,1 @@
+A golden ring with a blood-red gem affixed to it. It has a twin somewhere called the [[Unwilling Band of Subservience]] and whoever wears that ring will be bound to serve.

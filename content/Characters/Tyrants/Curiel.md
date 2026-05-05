@@ -1,0 +1,5 @@
+Curiel Nine-Claw, Tyrant of Fear. A wicked and psychopathic killer cat. She is known for pressing rats into her service and clipping their ears into triangles like her own.
+
+[[Pyke Flashtail]] claims that she is immortal, and that only the legendary power of the [[Tenth Claw]] can slay her.
+
+Her lair is in the eastern [[High Grass Meadow]].

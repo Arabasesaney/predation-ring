@@ -1,0 +1,1 @@
+A tiny Tufted Titmouse who adores [[Arthur No-Mane]] and [[Pascal]]. He is a little bit chubby and is often found scarfing seeds he shouldn't be. He can be found practicing with a twig sword chopping down grasses.
