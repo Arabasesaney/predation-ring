@@ -1,0 +1,1 @@
+The southern border of the map. A lifeless, poison land created by the wake of the [[Great Fire]].

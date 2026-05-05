@@ -1,10 +1,4 @@
----
-title: ???
----
-# Hello World! #
+Welcomes to the catalogued lore of the Predation Ring.
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+![[mouse archivist.png|310]]
 
-
-DIFFERENCE TEST @
