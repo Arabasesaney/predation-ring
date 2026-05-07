@@ -14,5 +14,5 @@ Hopefully this information will give you the wisdom to free us from the [[Tyrant
 |       ⛧        |          |
 |       ☾        |          |
 |       ☀︎       |          |
-|       ⊙        |  **\|**  |
+|       ⊙        |          |
 |       ✘        |          |

@@ -49,6 +49,8 @@ However, in his parting words [[Pyke Flashtail]] gave a foreboding warning. The 
 [[Pyke Flashtail]] told the heroes of a weapon of myth: the [[Tenth Claw]]. With it, legend said one could kill [[Curiel]]. If the heroes returned with the [[Tenth Claw]], [[Pyke Flashtail]] would pledge his allegiance and help to topple [[Curiel]].
 
 # Epilogue #
+On the way home, [[Lysa Lightfoot]] opted to join the heroes [[Elmbridge]]. 
+
 The heroes Settled In for the rest of Spring, but were dealt a tragic blow.
 
 [[Methusael]] wandered out in the middle of the night. In the morning, all that was left of him was a blood-soaked print of a cat's paw in the dirt.
