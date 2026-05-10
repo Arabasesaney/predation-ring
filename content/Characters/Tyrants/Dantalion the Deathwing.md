@@ -1,0 +1,1 @@
+One of the [[Tyrants]]. Known as the "Silent Death", he is still shrouded in mystery.

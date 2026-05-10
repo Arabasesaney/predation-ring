@@ -1,0 +1,1 @@
+Rumored to be a black dragon of horrible powers. Said to be called "the black" from the ashes of his enemies. This creature is said to have started the [[Great Fire]].

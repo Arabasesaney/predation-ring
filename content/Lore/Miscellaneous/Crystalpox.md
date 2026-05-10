@@ -2,4 +2,4 @@ An affliction that causes iridescent blue crystal growth on the victim. The more
 
 When Crystalpox is cured, the crystals turn clear like quartz, transmute to water, and fall of the skin.
 
-This condition was first encountered in [[Session 1 - Spring]] in the [[Fortress of the Crystal Rat]].
+This condition was first encountered in [[Session 1 - Spring, Year 1]] in the [[Fortress of the Crystal Rat]].

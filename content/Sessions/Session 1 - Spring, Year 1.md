@@ -44,9 +44,9 @@ The [[Fortress of the Crystal Rat]] was filled with sick and desperate rats. The
 
 Utilizing a healing potion [[Arthur No-Mane]] carried, they cured the rats of [[Crystalpox]] and rid the well of contamination. They gained the Favor of [[Pyke Flashtail]] that day. As a token of his thanks, he gave them the [[Bamboo Shoot of Ascension]].
 
-However, in his parting words [[Pyke Flashtail]] gave a foreboding warning. The clipped ears of his followers indicated their allegiance to [[Curiel]], an immortal psychopathic cat. The cat had pressed the rats into her service with fear, and they dared not try to resist.
+However, in his parting words [[Pyke Flashtail]] gave a foreboding warning. The clipped ears of his followers indicated their allegiance to [[Curiel the Immortal]], an immortal psychopathic cat. The cat had pressed the rats into her service with fear, and they dared not try to resist.
 
-[[Pyke Flashtail]] told the heroes of a weapon of myth: the [[Tenth Claw]]. With it, legend said one could kill [[Curiel]]. If the heroes returned with the [[Tenth Claw]], [[Pyke Flashtail]] would pledge his allegiance and help to topple [[Curiel]].
+[[Pyke Flashtail]] told the heroes of a weapon of myth: the [[Tenth Claw]]. With it, legend said one could kill [[Curiel the Immortal]]. If the heroes returned with the [[Tenth Claw]], [[Pyke Flashtail]] would pledge his allegiance and help to topple [[Curiel the Immortal]].
 
 # Epilogue #
 On the way home, [[Lysa Lightfoot]] opted to join the heroes [[Elmbridge]]. 

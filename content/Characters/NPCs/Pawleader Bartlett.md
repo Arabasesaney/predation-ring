@@ -1,1 +1,1 @@
-Lieutenant to [[Pyke Flashtail]] at the [[Fortress of the Crystal Rat]]. He led the party into his fortress in [[Session 1 - Spring]]. 
+Lieutenant to [[Pyke Flashtail]] at the [[Fortress of the Crystal Rat]]. He led the party into his fortress in [[Session 1 - Spring, Year 1]]. 

@@ -1,0 +1,1 @@
+A huge baked-earth anthill in the western [[High Grass Meadow]]. It was cleared of ants in [[Session 2 - Summer, Year 1]] by [[Arthur No-Mane]] and [[Reginald]].

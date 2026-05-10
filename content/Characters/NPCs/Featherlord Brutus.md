@@ -1,0 +1,1 @@
+A blue jay in the [[Golden Company]] leading a band of robins. He lead an unsuccessful raid on [[Elmbridge]] in [[Session 2 - Summer, Year 1]].

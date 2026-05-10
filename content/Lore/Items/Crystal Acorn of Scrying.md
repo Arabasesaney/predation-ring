@@ -1,0 +1,1 @@
+A full-sized acorn fashioned of quartz. Balancing this acorn on your head while meditating allows the user to scry far distances. They can glimpse a vision of a far away place once per Season.

@@ -1,0 +1,1 @@
+A fortress glimpsed by [[Pascal]] by a body of water in [[High Grass Meadow]].

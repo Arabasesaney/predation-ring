@@ -1,0 +1,1 @@
+The wife of [[Archie the Architect]], she cares for their many children and supports [[Elmbridge]]'s building projects. She is much friendlier than her grouchy husband.
