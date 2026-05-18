@@ -41,4 +41,4 @@ Once returned to [[Elmbridge]], the villagers loaded up pack beetles with carts 
 # Epilogue #
 A grand celebration was held in [[Elmbridge]]. The food from the [[Anthill]] heavily bolstered the winter stocks and the wagonloads of ant carapace were fashioned into armaments to protect the town. The addition of a vineyard to the agriculture fields provided wine for the festivities. Foundations for future homes were laid that summer. And upon those foundations the residents of [[Elmbridge]] danced.
 
-However, as the weather cooled and the autumn winds blew in so did a strange visitor. [[Timothy Titmouse]] was the first to witness a strange distracted mouse trudge into town. A mouse with spiral eyes.
+However, as the weather cooled and the autumn winds blew in so did a strange visitor. [[Timothy Titmouse]] was the first to witness a villager behaving strangely: a mole with spiral eyes.

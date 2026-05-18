@@ -1,0 +1,1 @@
+A small pond in northwestern [[High Grass Meadow]]. The [[Beaver Dam Fortress]] is located on it.

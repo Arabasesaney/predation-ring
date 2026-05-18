@@ -1,0 +1,1 @@
+A dilapidated metal bird feeder built by the [[Giants]] in the [[High Grass Meadow]].
