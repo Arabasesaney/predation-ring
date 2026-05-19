@@ -1,0 +1,1 @@
+The [[Rat]] pirate and rival of [[Flint Toothache]].

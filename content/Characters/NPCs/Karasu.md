@@ -1,1 +1,1 @@
-A crow spy in the employ of [[Dantalion the Deathwing]]. He was forced into being a double agent by [[Arthur No-Mane]] in [[Session 2 - Summer, Year 1]].
+A crow spy in the employ of [[Dantalion the Unseen]]. He was forced into being a double agent by [[Arthur No-Mane]] in [[Session 2 - Summer, Year 1]].

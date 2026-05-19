@@ -27,9 +27,9 @@ To get a lay of the land, [[Arthur No-Mane]] and [[Pascal]] ventured to a nearby
 ## Burrow of the Drowned Rat ##
 A burrow dug into a mossy wet log caught their interest. Looking inside, our heroes found a flooded abode that previously belonged to a Skunk. It is now known as the [[Burrow of the Drowned Rat]].
 
-[[Arthur No-Mane]] found a secret trapdoor leading to ritual chamber full of [[Rats]] led by [[Yazcabal, Occult Opossum]]. A scuffle at the trapdoor ensued. [[Arthur No-Mane]] was able to drive the rats away, but [[Yazcabal, Occult Opossum]] came crashing up to the top floor to confront them.
+[[Arthur No-Mane]] found a secret trapdoor leading to ritual chamber full of [[Rat]] led by [[Yazcabal, Occult Opossum]]. A scuffle at the trapdoor ensued. [[Arthur No-Mane]] was able to drive the rats away, but [[Yazcabal, Occult Opossum]] came crashing up to the top floor to confront them.
 
-[[Pascal]] shapeshifted into an inchworm and distracted the Opossum. Together, the heroes pushed [[Yazcabal, Occult Opossum]] down the chute and drove him off. The opossum's parting words referenced a [[Cult of the Drowned Rat]] and someone named [[Lorelei]].
+[[Pascal]] shapeshifted into an inchworm and distracted the Opossum. Together, the heroes pushed [[Yazcabal, Occult Opossum]] down the chute and drove him off. The opossum's parting words referenced a [[Cult of the Drowned Rat]] and someone named [[Lorelei the Hungry]].
 
 Raiding the cultist's alter, they found a strange ring left behind: the [[Unyielding Band of Mastery]].
 

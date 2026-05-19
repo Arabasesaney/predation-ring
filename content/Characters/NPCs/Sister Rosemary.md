@@ -1,0 +1,1 @@
+A sister of the [[Golden Acorn]]. She knows [[Reginald]] from before the [[Great Fire]], and resides in [[Oakenhall]].

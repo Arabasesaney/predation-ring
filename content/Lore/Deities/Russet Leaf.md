@@ -1,0 +1,1 @@
+The vibrant maple leaf of autumn. It's adherents revere humility, change, and fortitude.

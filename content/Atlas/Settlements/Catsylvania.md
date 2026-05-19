@@ -1,0 +1,1 @@
+An settlement in the shadow of [[Curiel the Immortal]]'s lair.

@@ -1,0 +1,1 @@
+A large oak tree settlement full of squirrels. It's located in the [[High Grass Meadow]].

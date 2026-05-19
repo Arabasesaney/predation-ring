@@ -4,7 +4,8 @@ A flat land of tall grasses stretching as far as the eye can see.
 
 Settlements:
 - [[Elmbridge]]
-- [[Oaktree Settlement]]
+- [[Oakenhall]]
+- [[Catsylvania]]
 
 Fortresses
 - [[Fortress of the Crystal Rat]]
@@ -13,10 +14,12 @@ Fortresses
 Burrows
 - [[Burrow of the Drowned Rat]]
 - [[Anthill]]
+- [[Sinkhole]]
 
 Hollows
 - [[Crow's Nest]]
 - [[Bee's Hive]]
+- [[Firewasp Hive]]
 
 Points of Interest
 - [[Wildflower Grove]]

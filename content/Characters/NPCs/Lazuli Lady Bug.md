@@ -1,0 +1,1 @@
+A lady bug with marbled lazuli coloration where red should be. It was rescued from the [[Firewasp Hive]] in [[Session 3 - Autumn, Year 1]]. It came back with heroes to [[Elmbridge]], searched around for awhile, and then flew off.

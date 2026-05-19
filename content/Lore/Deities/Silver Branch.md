@@ -1,0 +1,1 @@
+The barren deity of winter. It's adherents revere knowledge, solitude, and self-reflection.

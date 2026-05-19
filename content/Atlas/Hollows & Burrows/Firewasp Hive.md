@@ -1,0 +1,1 @@
+In a burnt hollow tree in the [[High Grass Meadow]]. It is a hive of [[Firewasp]] that was being tended to by [[Fane the Kindler]]. It was cleared out of it's inhabitants in [[Session 3 - Autumn, Year 1]].

@@ -1,0 +1,1 @@
+An old grey squirrel farmer who follows the teachings of the [[Golden Acorn]].

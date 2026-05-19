@@ -1,0 +1,1 @@
+A young mouse and granddaughter of [[Methusael]]. After grieving the loss of her grandfather, she has taken up training with the spear. She wants to fight back against [[Curiel the Immortal]].

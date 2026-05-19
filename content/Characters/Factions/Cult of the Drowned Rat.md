@@ -1,1 +1,1 @@
-A strange cult of [[Rats]] following the teachings of [[Yazcabal, Occult Opossum]]. They have a tenuous connection to [[Lorelei]].
+A strange cult of [[Rat]] following the teachings of [[Yazcabal, Occult Opossum]]. They have a tenuous connection to [[Lorelei the Hungry]].

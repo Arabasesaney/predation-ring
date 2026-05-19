@@ -1,0 +1,1 @@
+Made of the lady slippers flower and threaded with spider hairs, they allow the wearer to walk on walls and the ceiling as though it was the ground.

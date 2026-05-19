@@ -1,0 +1,1 @@
+A raccoon with a black tunic and large bag of goods. He's missing part of his left ear and frequently pats his round, racoon belly. He is at trader of valuable items. He says things like: "I'm here to wheel and deal boss!"

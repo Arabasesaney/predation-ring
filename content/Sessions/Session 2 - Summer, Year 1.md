@@ -21,7 +21,7 @@ A troupe of robins lead by [[Featherlord Brutus]] of the [[Golden Company]] atte
 ## Erratic Boulder ##
 On the trip through the tall grasses of [[High Grass Meadow]], [[Arthur No-Mane]] noticed a crow spying on them. He and [[Reginald]] ambushed the crow and questioned him fiercely, rubbing his beak into the dirt until he squawked. 
 
-The crows name was [[Karasu]] and was a spy for [[Dantalion the Deathwing]]. [[Arthur No-Mane]] plucked a feather from the crow and threatened him with curses if he didn't cooperate. [[Karasu]], terrified, agreed to be a double agent for [[Elmbridge]]. Satisfied with the outcome, the pair let [[Karasu]] go and headed to the boulder.
+The crows name was [[Karasu]] and was a spy for [[Dantalion the Unseen]]. [[Arthur No-Mane]] plucked a feather from the crow and threatened him with curses if he didn't cooperate. [[Karasu]], terrified, agreed to be a double agent for [[Elmbridge]]. Satisfied with the outcome, the pair let [[Karasu]] go and headed to the boulder.
 
 Using the [[Bamboo Shoot of Ascension]], the heroes climbed to the top with no issue. In the distance, they spotted several new points of interest to add to the map.
 ## Vernal Troll ##

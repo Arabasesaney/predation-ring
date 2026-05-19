@@ -1,0 +1,1 @@
+A [[Mole]] smith from [[Deeproot]]. The heroes met him in [[Session 3 - Autumn, Year 1]] while in the [[Undertunnels]]. They convinced him to come back to [[Elmbridge]] to set up shop.

@@ -3,4 +3,5 @@ Rats and Mice have always had tension between the two species. Rats respect stre
 Notable Rat characters:
 - [[Pyke Flashtail]]
 - [[Pawleader Bartlett]]
-- 
+- [[Flint Toothache]]
+- [[Eddy Blacksnout]]
