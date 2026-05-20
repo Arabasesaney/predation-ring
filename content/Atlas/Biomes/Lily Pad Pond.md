@@ -1,0 +1,1 @@
+A large pond to the east of [[High Grass Meadow]].

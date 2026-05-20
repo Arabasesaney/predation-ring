@@ -1,0 +1,1 @@
+One of the [[Tyrants]] of unknown form. Is said to be the source of the [[Shadeborn]].

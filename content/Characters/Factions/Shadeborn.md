@@ -1,0 +1,1 @@
+Zombie-like shells of living creatures. They are covered with mold and spores and bleed venom in the place of blood. [[Underqueen Aurelia, the Darkstar]] speculated that [[Diabolus the Resurrector]] is the source of these.

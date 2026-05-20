@@ -4,4 +4,4 @@ The buildings are built exclusively with pebbles and clay from the [[Estuary]]. 
 
 The moles here are expert crafters, mining ore in the [[Undertunnels]] to forge exquisite metal tools and ornaments.
 
-The city has been beset by [[Frog Pirates]] on the [[Estuary]]. Additionally, the unsettling minions of [[Abraxas]] and [[Diabolus]] have been plaguing the city.
+The city has been beset by [[Frog Pirates]] on the [[Estuary]]. Additionally, the unsettling minions of [[Abraxas the Mind-Taker]] and [[Diabolus the Resurrector]] have been plaguing the city.

@@ -4,12 +4,12 @@ He hopes to uncover the secret of the mysterious and ancient order of knights, k
 
 He helped lead his people away from the calamity of the [[Great Fire]] and helped start the settlement of [[Elmbridge]].
 
-He is a hero that participated in:
-- [[Session 1 - Spring, Year 1]]
-
 He has earned the Favor of:
 - [[Pyke Flashtail]]
 - [[Lysa Lightfoot]]
 
 He has gained the Ire of:
 - [[Yazcabal, Occult Opossum]]
+
+The hold:
+- [[Bamboo Shoot of Ascension]]

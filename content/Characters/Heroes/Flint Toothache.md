@@ -3,3 +3,11 @@ A rat pirate who showed up to [[Elmbridge]] wet and bedraggled. He was part of a
 Flint has a chipped tooth, gold hoop earrings, and a cocky attitude. He yearns to have a ship of his own and outdo his rival [[Eddy Blacksnout]].
 
 He first appeared in [[Session 3 - Autumn, Year 1]].
+
+He has gained the Ire of:
+- [[Eddy Blacksnout]]
+- [[Fane the Kindler]]
+
+They hold:
+- [[Smokestone of Concealment]]
+- [[Lady Slippers of the Spider]]

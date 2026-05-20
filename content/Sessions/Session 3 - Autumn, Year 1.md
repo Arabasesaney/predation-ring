@@ -29,7 +29,9 @@ Three new villagers were introduced:
 ## Abandoned Bird Feeder ##
 On their way to the abandoned bird feeder, the heroes ran into a pack of weasels with eye symbols branded into their fur. The heroes attempted to hide under a leaf, but the autumn winds dragged it out of their hands. The weasel's bullied [[Arthur No-Mane]] about his hairlessness and provoked a fight with [[Flint Toothache]]. A tussle ensued, with [[Flint Toothache]] driving the weasels away with a well placed blast of sand to the eyes. 
 
-They interrogated an unlucky weasel before letting him go. They found that he served [[Lampades the All-Knowing]]. 
+They interrogated an unlucky weasel before letting him go. They found that he served [[Lampades the All-Knowing]].
+
+Lastly, when [[Reginald]] attempting to beseech the power of the [[Golden Acorn]], he found a powerful presence attempting to scry him through the [[Crystal Acorn of Scrying]]. A creature with a etched amber eye was trying to peer out and find him.
 ## Firewasp Hive ##
 The heroes journeyed to a hollow burnt tree. Entering the hollow, they found it was a burnt and destroyed home. Inside it, a [[Firewasp]] was eating the charred wood. They captured the creature and tied it up, using it for light as they explored the hollow.
 
@@ -53,6 +55,21 @@ On the way to the [[Sinkhole]], the heroes met [[Wheeler]]. [[Flint Toothache]] 
 At the sinkhole, they found a gopher-sized hole leading deep down into the earth. At the bottom, they found themselves in the [[Undertunnels]].
 
 Once there, [[Pascal]] was able to sniff out one of their cousins. They found [[Jord Hammerpaw]] out gathering earthworms. [[Jord Hammerpaw]] led them to his home at [[Deeproot]].
+
+On the way there however, the party was assaulted by a group of [[Shadeborn]]: spore-covered zombies that were once moles. [[Pascal]] and [[Jord Hammerpaw]] dug an escape route and they escape their clutches. [[Flint Toothache]] was bit by one of them, but [[Reginald]] healed his wound.
 ## Deeproot ##
+The party arrived in [[Deeproot]] and went to meet with [[Underqueen Aurelia, the Darkstar]]. The queen revealed the names of two [[Tyrants]] besieging her city: the snake [[Abraxas the Mind-Taker]] and an unknown entity known as [[Diabolus the Resurrector]]. Lastly, [[Frog Pirates]] were raiding them from the [[Estuary]].
+
+When asked if she was worried about [[Curiel the Immortal]], [[Underqueen Aurelia, the Darkstar]] announced that she had no fear of the cat. She unsheathed her sword, revealing it to be the [[Tenth Claw]]. She and [[Arthur No-Mane]] struck a bargain: if [[Elmbridge]] helped rid [[Deeproot]] of one of their assailants, she would help kill [[Curiel the Immortal]].
+
+Lastly, they struck a trade deal. [[Elmbridge]] promised wine from their vineyard in exchange for clay from the [[Estuary]]. 
+
+## Frog Pirates ##
+On the way home they were accosted by a group of [[Frog Pirates]]. However, [[Flint Toothache]] used his own pirate charm and a bottle of rum to talk the frogs out of robbing his friends. [[Flint Toothache]] spent the night drinking with the [[Frog Pirates]] and got some information out of them.
+
+The pirates have a stronghold on the largest island of [[Lily Pad Pond]]. There, [[Pirate King Rankle]] ruled. They sail the waters with [[Fishboats]] and when [[Pirate King Rankle]] is angry, he feeds unlucky frogs to [[Lorelei the Hungry]].
 
 # Epilogue #
+The fall harvest was brought in, filling the surplus further. With a strong harvest and the ample resources harvested from the [[Anthill]] in [[Session 2 - Summer, Year 1]], [[Elmbridge]] has solid stores for the winter.
+
+However, as the first snowflakes fell upon the land, the unfortunate [[Fleece]] was kidnapped by weasels.

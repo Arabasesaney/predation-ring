@@ -1,7 +1,6 @@
-A timid and quiet vole druid. They can speak to bugs and shapeshift into a grasshopper and inchworm. Capable of great compassion, they are learning to be brave in the face of danger.
+A timid and quiet [[Vole]] druid. They can speak to bugs and shapeshift into a grasshopper and inchworm. Capable of great compassion, they are learning to be brave in the face of danger.
 
-They are a hero that participated in:
-- [[Session 1 - Spring, Year 1]]
+They have beady eyes, brown fur, and a stocky build like most voles.
 
 They have earned the Favor of:
 - [[Pyke Flashtail]]
@@ -9,3 +8,4 @@ They have earned the Favor of:
 
 They have gained the Ire of:
 - [[Yazcabal, Occult Opossum]]
+- [[Fane the Kindler]]

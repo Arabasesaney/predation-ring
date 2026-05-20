@@ -1,0 +1,1 @@
+Said to be a giant bullfrog who rules the [[Frog Pirates]] of [[Lily Pad Pond]]. 
