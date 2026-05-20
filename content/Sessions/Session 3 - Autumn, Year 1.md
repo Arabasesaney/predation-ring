@@ -29,7 +29,7 @@ Three new villagers were introduced:
 ## Abandoned Bird Feeder ##
 On their way to the abandoned bird feeder, the heroes ran into a pack of weasels with eye symbols branded into their fur. The heroes attempted to hide under a leaf, but the autumn winds dragged it out of their hands. The weasel's bullied [[Arthur No-Mane]] about his hairlessness and provoked a fight with [[Flint Toothache]]. A tussle ensued, with [[Flint Toothache]] driving the weasels away with a well placed blast of sand to the eyes. 
 
-They interrogated an unlucky weasel before letting him go. They found that he served [[Lampades the All-Knowing]].
+They interrogated an unlucky weasel before letting him go. They found that he served [[Lampades the All-Seeing]].
 
 Lastly, when [[Reginald]] attempting to beseech the power of the [[Golden Acorn]], he found a powerful presence attempting to scry him through the [[Crystal Acorn of Scrying]]. A creature with a etched amber eye was trying to peer out and find him.
 ## Firewasp Hive ##

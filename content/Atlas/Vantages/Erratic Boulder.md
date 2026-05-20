@@ -1,0 +1,1 @@
+A large, solitary boulder in the [[High Grass Meadow]].

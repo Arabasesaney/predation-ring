@@ -1,0 +1,1 @@
+A 100-year-old pine, now dead, in the [[High Grass Meadow]].

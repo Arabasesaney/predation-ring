@@ -1,1 +1,1 @@
-A large grove of wildflowers in central [[High Grass Meadow]]. It buzzes with bees that migrate down from the [[Bee's Hive]] north of it.
+A large grove of wildflowers in central [[High Grass Meadow]]. It buzzes with bees that migrate down from the [[Bee Hive]] north of it.

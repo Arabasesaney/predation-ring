@@ -18,11 +18,15 @@ Burrows
 
 Hollows
 - [[Crow's Nest]]
-- [[Bee's Hive]]
+- [[Bee Hive]]
 - [[Firewasp Hive]]
 
 Points of Interest
 - [[Wildflower Grove]]
+
+Vantages
+- [[Tall Dead Pine]]
+- [[Erratic Boulder]]
 
 Lairs
 - [[Curiel the Immortal]]

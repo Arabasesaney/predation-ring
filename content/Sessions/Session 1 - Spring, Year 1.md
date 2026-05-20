@@ -20,7 +20,7 @@ Two villagers were introduced: [[Timothy Titmouse]] and [[Methusael]].
 During the season of Spring, [[Arthur No-Mane]] and [[Pascal]] ventured outward to survey the [[High Grass Meadow]] and sort out it's dangers.
 
 ## Tall Dead Pine ##
-To get a lay of the land, [[Arthur No-Mane]] and [[Pascal]] ventured to a nearby 100-year old pine, now dead. There was an incident while making the climb: forcing the noble [[Arthur No-Mane]] to cut his rope and fall to the bottom to save [[Pascal]]. Luckily, his armor cushioned the blow and he got away unscathed.
+To get a lay of the land, [[Arthur No-Mane]] and [[Pascal]] ventured to a nearby [[Tall Dead Pine]]. There was an incident while making the climb: forcing the noble [[Arthur No-Mane]] to cut his rope and fall to the bottom to save [[Pascal]]. Luckily, his armor cushioned the blow and he got away unscathed.
 
 [[Pascal]] got a good look at the land, and found several sites of interest to explore nearby.
 
