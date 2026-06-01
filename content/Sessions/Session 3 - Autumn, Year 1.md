@@ -52,6 +52,8 @@ From the defeated [[Fane the Kindler]] the heroes confiscated the [[Smokestone o
 ## Sinkhole ##
 On the way to the [[Sinkhole]], the heroes met [[Wheeler]]. [[Flint Toothache]] traded the [[Unyielding Band of Mastery]] for the [[Lady Slippers of the Spider]].
 
+A rabid porcupine also blocked their way, but they sent hurdling with the clever use of a ramp. [[Flint Toothache]] collected some good porcupine quills from it.
+
 At the sinkhole, they found a gopher-sized hole leading deep down into the earth. At the bottom, they found themselves in the [[Undertunnels]].
 
 Once there, [[Pascal]] was able to sniff out one of their cousins. They found [[Jord Hammerpaw]] out gathering earthworms. [[Jord Hammerpaw]] led them to his home at [[Deeproot]].
