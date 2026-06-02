@@ -11,6 +11,8 @@
 ## Projects ##
 The village added to it's fortifications a tall watchtower. It also added a field clinic to aid the sick and wounded. Lastly, the large root of the elm tree that extends above the town like a bridge (hence it's name [[Elmbridge]]) was made into a memorial. Charms of the deceased are hung from it and hang over the town.
 
+The villagers worked hard through the winter to continuing building houses, but it put a strain on their morale.
+
 ## Villagers ##
 Several villagers were introduced, including:
 - [[Wendy]]
@@ -40,6 +42,9 @@ Out in the courtyard, the darkness from the [[Smokestone of Concealment]] cleare
 
 The party with [[Fleece]] and the [[Shrews]] in tow slid down a rope over the side of the wall to escape into the forest. The last thing [[Arthur No-Mane]] saw was the [[Golden Company]] assaulting the [[Bramblefort]]. With no weasels left to defend it, they were sure to take it.
 ## Pantheon of the Evertree ##
+Late in winter [[Sister Rosemary]] came knocking at [[Reginald]]'s front door. She had a letter summoning him to the [[Pantheon of the Evertree]]. The red squirrel traveled to the [[Hollow of the Pantheon]] in the [[Wooded Glade]] to speak on the council.
 
+He found that council divided and planning to vote on which Tyrant to support. [[Freya, Chosen of Winter]] argued that this would be better than all eight [[Tyrants]] causing war and strife between each other; a quick end to the war would be better than a prolonged conflict. [[Reginald]] argued in vain that this was folly, but [[Freya, Chosen of Winter]] outfoxed him. The [[Pantheon of the Evertree]] voted to support [[Lampades the All-Seeing]] as the chosen Tyrant.
 
 # Epilogue #
+This session continued into [[Session 4b - Spring, Year 2]].
