@@ -6,7 +6,7 @@
 # Prelude #
 The heroes awoke to fire and chaos at the start of spring. [[Fane the Kindler]] had offered [[Juniper]] the temptation of fire. [[Juniper]] who wanted the power to slay [[Curiel the Immortal]] avenge [[Methusael]] was tricked by the salamander, which led to his escape and the fire in [[Elmbridge]].
 
-[[Arthur No-Mane]] found [[Juniper]] badly burned and dying. He tried to save her, but could not. As his first apprentice and pupil, [[Arthur No-Mane]] was devestated.
+[[Arthur No-Mane]] found [[Juniper]] badly burned and dying. He tried to save her, but could not. As his first apprentice and pupil, [[Arthur No-Mane]] was devastated.
 
 # Village #
 
@@ -32,6 +32,8 @@ A lemming hedge-knight named [[Alistair]] was praying before it. The heroes spen
 
 ## Whippor Willow ##
 The heroes scaled the [[Whippor Willow]] on the edge of [[Lily Pad Pond]] to get a good view. They spotted many sites of adventure including the infamous [[Croaking Cove]], legendary seat of [[Pirate King Rankle]].
+
+Additionally, [[Wheeler]] was sitting under the shade of the [[Whippor Willow]]. [[Stella the Snuggly]] traded all of the heroes current wealth (and some whiskey) for the [[Cloak of the Dragonfly]].
 
 # Epilogue #
 The heroes returned from their long journey. The frames and walls of the houses in [[Elmbridge]] were complete with just some interior work to be done. With more settlers coming to the village each season, [[Elmbridge]] has become an up-and-coming settlement.

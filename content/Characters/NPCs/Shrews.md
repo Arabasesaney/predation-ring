@@ -1,0 +1,1 @@
+A group of rambunctious minions that speak an unintelligible language. After being liberated from [[Bramblefort]] by [[Flint Toothache]] and [[Reginald]], they now serve [[Flint Toothache]] as his foundling pirate crew.

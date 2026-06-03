@@ -29,6 +29,6 @@ Vantages
 - [[Erratic Boulder]]
 
 Lairs
-- [[Curiel the Immortal]]
+- [[Lair of Curiel]]
 
 

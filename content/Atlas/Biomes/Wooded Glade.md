@@ -6,6 +6,7 @@ Settlements:
 
 
 Fortresses
+- [[Bramblefort]]
 
 
 Burrows
@@ -21,4 +22,5 @@ Vantages
 
 
 Lairs
+- [[Lair of Lampades]]
 

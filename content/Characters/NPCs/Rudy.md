@@ -1,0 +1,1 @@
+A beaver forester residing in [[Elmbridge]]. He goes way back with [[Archie the Architect]] and the two of them often collaborate on projects.

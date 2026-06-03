@@ -1,0 +1,1 @@
+A giant fox den. [[Flint Toothache]] discovered that there is an underground tunnel between it and [[Bramblefort]].

@@ -1,0 +1,1 @@
+A skinny and cowardly black weasel who served [[Thane Ivar Kill-Coney]]. He was first encountered on the road in [[Session 3 - Autumn, Year 1]] and then encountered again in [[Bramblefort]] during [[Session 4a - Winter, Year 1]].

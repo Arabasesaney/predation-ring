@@ -1,0 +1,1 @@
+A cloak of many segments of dragonfly wings. When activated, several pairs come to life granting the user flight.

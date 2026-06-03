@@ -1,0 +1,3 @@
+This large rock does is not made of the same stone as it's surroundings. It is a pillar carved with a maple tree. It shows a mouse wearing the tabard of the [[Russet Leaf]] burying a seed, turning to leaves, and blowing away in the autumn wind.
+
+This obelisk was dreamt of by [[Arthur No-Mane]] before it was found. There [[Arthur No-Mane]] dug up the [[Sacred Samara]] that lay hidden beneath the obelisk. It is also where the party met [[Alistair]].

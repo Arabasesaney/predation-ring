@@ -1,0 +1,1 @@
+A chubby chipmunk chef whose cheeks and belly are big and round. He resides in [[Elmbridge]].

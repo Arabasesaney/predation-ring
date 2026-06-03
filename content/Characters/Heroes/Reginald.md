@@ -7,6 +7,7 @@ They have earned the Favor of:
 
 They have gained the Ire of:
 - [[Fane the Kindler]]
+- [[Freya, Chosen of Winter]]
 
 They hold:
 - [[Crystal Acorn of Scrying]]

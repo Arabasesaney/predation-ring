@@ -1,0 +1,1 @@
+The [[Lair of Curiel]] is in the eastern [[High Grass Meadow]]. It is a wooden box made by the [[Giants]]. 

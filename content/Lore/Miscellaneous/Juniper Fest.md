@@ -1,0 +1,1 @@
+A holiday held in [[Elmbridge]] in the spring. Named after [[Juniper]], it honors those who have lost their lives and whose charms adorn the [[Memorial Bridge]].

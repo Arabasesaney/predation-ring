@@ -1,0 +1,1 @@
+A stag beetle purchased by [[Flint Toothache]] in [[Deeproot]]. It's a strong and sturdy pack animal that can be ridden. It has a stubborn, mulish personality. It had a sled made for it to help the heroes get around in the winter time.

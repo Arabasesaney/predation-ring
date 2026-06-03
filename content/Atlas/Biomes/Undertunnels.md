@@ -9,6 +9,7 @@ Settlements:
 Fortresses
 
 Burrows
+- [[Sinkhole]]
 
 Hollows
 

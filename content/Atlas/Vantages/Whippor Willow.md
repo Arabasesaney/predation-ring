@@ -1,0 +1,1 @@
+A large willow on the edge of [[Lily Pad Pond]].

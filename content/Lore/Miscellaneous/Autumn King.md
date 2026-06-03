@@ -1,0 +1,1 @@
+A king of myth and legend. Said to be the champion of the [[Russet Leaf]] and leader of the [[Knights of the Autumn King]]. 

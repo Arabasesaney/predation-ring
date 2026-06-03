@@ -1,0 +1,1 @@
+A pure white ferret. She is the cleric of the [[Silver Branch]]. During the storming of [[Bramblefort]], she was seen by [[Reginald]] repelling away from the scene. Later, at the council of the [[Pantheon of the Evertree]], she opposed [[Reginald]] by insisting that [[Lampades the All-Seeing]] should receive the pantheon's support.

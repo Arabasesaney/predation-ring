@@ -1,0 +1,1 @@
+An ornate hollow in the [[Wooded Glade]] where the [[Pantheon of the Evertree]] meets to discuss matters of the land. It has a spiraling staircase leading up to the hollow. It has a large round table with six chairs and a banner for each aspect of the Evertree.
