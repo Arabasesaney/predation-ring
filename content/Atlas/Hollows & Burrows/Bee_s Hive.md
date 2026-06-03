@@ -1,1 +1,0 @@
-A bee hive in a hollow tree in the northern [[High Grass Meadow]].

@@ -1,1 +1,1 @@
-???
+After the encounter with [[Karasu]] in [[Session 2 - Summer, Year 1]], this is the hollow the heroes saw [[Karasu]] fly back to in [[High Grass Meadow]].
