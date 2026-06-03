@@ -1,0 +1,1 @@
+A lemming hedge knight well versed in the history of the [[Knights of the Autumn King]]. An old and weathered warrior with a scar over one eye. He joined [[Elmbridge]] in [[Session 4b - Spring, Year 2]].

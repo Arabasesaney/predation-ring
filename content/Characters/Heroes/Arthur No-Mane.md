@@ -1,6 +1,6 @@
 A mouse hedge-knight with no fur. Small in stature and carrying a sword a bit to big to him, he is a noble force of good. Ashamed of his appearance, he is fully covered in armor from paw to ears.
 
-He hopes to uncover the secret of the mysterious and ancient order of knights, known only to him as the [[Mapleleaf Knights]].
+He hopes to uncover the secret of the mysterious and ancient order of knights, known only to him as the [[Knights of the Autumn King]].
 
 He helped lead his people away from the calamity of the [[Great Fire]] and helped start the settlement of [[Elmbridge]].
 

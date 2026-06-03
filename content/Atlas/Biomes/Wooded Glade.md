@@ -1,6 +1,6 @@
 A large pond to the east of [[High Grass Meadow]].
 
-<img src="/Lily Pad Pond.jpg" style="max-width: 100%"  width="auto" height="auto" alt="">
+<img src="/Wooded Glade.jpg" style="max-width: 100%"  width="auto" height="auto" alt="">
 
 Settlements:
 
@@ -21,6 +21,4 @@ Vantages
 
 
 Lairs
-
-
 
