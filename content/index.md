@@ -16,11 +16,3 @@ Hopefully this information will give you the wisdom to free us from the [[Tyrant
 |       ☀︎       | **\|\|\|** |
 |       ⊙        | **\|\|\|** |
 |       ✘        |   **\|**   |
-
-| Knights of the Autumn King | Progress |
-| -------------------------- | :------: |
-| Planting the Sacred Samara | **\|\|** |
-
-| Treasure of Bilgerat Bill | Progress |
-| ------------------------- | :------: |
-| ???                       |          |
