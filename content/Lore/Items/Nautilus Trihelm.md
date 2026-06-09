@@ -1,0 +1,1 @@
+A treasure lusted for by [[Pirate King Rankle]] and said to be hidden in the hoard of [[Bilgerat Bill]].

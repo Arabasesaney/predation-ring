@@ -1,0 +1,1 @@
+There is something large dwelling in [[Bucktooth Bay]]. It was sensed by [[Arthur No-Mane]] in [[Session 5 - Summer, Year 2]].

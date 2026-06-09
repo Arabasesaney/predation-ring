@@ -1,0 +1,1 @@
+A ink-black cloak of raven feathers. As it's made from the feathers of the most eldritch bird it is resistant to magic and prevents scrying of any kind on the wearer. [[Flint Toothache]] traded this from [[Wheeler]] in [[Session 5 - Summer, Year 2]].

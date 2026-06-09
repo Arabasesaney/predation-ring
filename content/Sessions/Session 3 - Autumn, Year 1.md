@@ -60,14 +60,14 @@ Once there, [[Pascal]] was able to sniff out one of their cousins. They found [[
 
 On the way there however, the party was assaulted by a group of [[Shadeborn]]: spore-covered zombies that were once moles. [[Pascal]] and [[Jord Hammerpaw]] dug an escape route and they escape their clutches. [[Flint Toothache]] was bit by one of them, but [[Reginald]] healed his wound.
 ## Deeproot ##
-The party arrived in [[Deeproot]] and went to meet with [[Underqueen Aurelia, the Darkstar]]. The queen revealed the names of two [[Tyrants]] besieging her city: the snake [[Abraxas the Mind-Taker]] and an unknown entity known as [[Diabolus the Resurrector]]. Lastly, [[Frog Pirates]] were raiding them from the [[Estuary]].
+The party arrived in [[Deeproot]] and went to meet with [[Underqueen Aurelia, the Darkstar]]. The queen revealed the names of two [[Tyrants]] besieging her city: the snake [[Abraxas the Mind-Taker]] and an unknown entity known as [[Diabolus the Resurrector]]. Lastly, [[Pond Pirates]] were raiding them from the [[Estuary]].
 
 When asked if she was worried about [[Curiel the Immortal]], [[Underqueen Aurelia, the Darkstar]] announced that she had no fear of the cat. She unsheathed her sword, revealing it to be the [[Tenth Claw]]. She and [[Arthur No-Mane]] struck a bargain: if [[Elmbridge]] helped rid [[Deeproot]] of one of their assailants, she would help kill [[Curiel the Immortal]].
 
 Lastly, they struck a trade deal. [[Elmbridge]] promised wine from their vineyard in exchange for clay from the [[Estuary]]. 
 
 ## Frog Pirates ##
-On the way home they were accosted by a group of [[Frog Pirates]]. However, [[Flint Toothache]] used his own pirate charm and a bottle of rum to talk the frogs out of robbing his friends. [[Flint Toothache]] spent the night drinking with the [[Frog Pirates]] and got some information out of them.
+On the way home they were accosted by a group of [[Pond Pirates]]. However, [[Flint Toothache]] used his own pirate charm and a bottle of rum to talk the frogs out of robbing his friends. [[Flint Toothache]] spent the night drinking with the [[Pond Pirates]] and got some information out of them.
 
 The pirates have a stronghold on the largest island of [[Lily Pad Pond]]. There, [[Pirate King Rankle]] ruled. They sail the waters with [[Fishboats]] and when [[Pirate King Rankle]] is angry, he feeds unlucky frogs to [[Lorelei the Hungry]].
 

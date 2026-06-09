@@ -1,0 +1,1 @@
+Frogs from [[Lily Pad Pond]] that raid for treasure. They serve [[Pirate King Rankle]] and sail [[Fishboats]]. Their seat of power is [[Croaking Cove]]. They have been raiding [[Deeproot]] viciously.

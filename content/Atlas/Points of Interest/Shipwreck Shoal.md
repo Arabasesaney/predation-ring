@@ -1,0 +1,1 @@
+A narrow and shallow rocky area in [[Lily Pad Pond]]. It is the site of countless shipwrecks and their corpses are laid all about it. The [[Shrew's Revenge]] went aground their in [[Session 5 - Summer, Year 2]].

@@ -1,0 +1,1 @@
+A sturdy castle of smooth pond stones and mud. It is the seat of [[Pirate King Rankle]] and the political capital of the [[Pond Pirates]]. It's located in [[Croaking Cove]].

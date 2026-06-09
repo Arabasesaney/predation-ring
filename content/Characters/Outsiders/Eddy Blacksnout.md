@@ -1,1 +1,3 @@
-The [[Rat]] pirate and rival of [[Flint Toothache]].
+The [[Rat]] pirate and rival of [[Flint Toothache]]. A grey rat with a prominent black snout and a gold tooth, he is the picture of a pirate. He wears a big floppy hat with a feather and has a colorful pet fly on his shoulder. He is the leader of the [[Sea Rats]].
+
+He has thrown his lot in with [[Abraxas the Mind-Taker]] and has a tense alliance with [[Pirate King Rankle]]. He is seeking the [[Map of Bilgerat Bill]] and it's treasure. He is constantly pursuing [[Flint Toothache]] after the events of [[Session 5 - Summer, Year 2]].

@@ -1,0 +1,1 @@
+A sloop given to [[Flint Toothache]] as part of becoming a privateer for [[Pirate King Rankle]]. The name was chosen by Flint as a foreshadowing of what was to come. It is a lightly armored but fast vessel.

@@ -1,1 +1,0 @@
-Frogs from [[Lily Pad Pond]] that raid for treasure. They serve [[Pirate King Rankle]] and sail [[Fishboats]].

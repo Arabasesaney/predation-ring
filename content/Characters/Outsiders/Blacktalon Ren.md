@@ -1,0 +1,1 @@
+A raven serving [[Dantalion the Unseen]]. She is the superior of [[Karasu]] and commands the dojo at the [[Crow's Nest]] in [[High Grass Meadow]].

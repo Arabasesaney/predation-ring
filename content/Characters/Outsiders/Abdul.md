@@ -1,0 +1,1 @@
+A quartermaster for the [[Pond Pirates]] and [[Pirate King Rankle]]. This sensible brown frog now serves on the [[Shrew's Revenge]] to keep an eye on [[Flint Toothache]]. He was first encountered in [[Session 5 - Summer, Year 2]] in the [[Ribbet & Gibbet]].

@@ -1,1 +1,1 @@
-???
+A giant, phosphorescent blood red eel. The heroes got their first look at her in [[Session 5 - Summer, Year 2]] when she ate her unfortunate follower [[Yazcabal, Occult Opossum]]. She haunts [[Lily Pad Pond]] and is worshipped by the [[Pond Pirates]].

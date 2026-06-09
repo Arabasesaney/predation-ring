@@ -37,3 +37,5 @@ Additionally, [[Wheeler]] was sitting under the shade of the [[Whippor Willow]].
 
 # Epilogue #
 The heroes returned from their long journey. The frames and walls of the houses in [[Elmbridge]] were complete with just some interior work to be done. With more settlers coming to the village each season, [[Elmbridge]] has become an up-and-coming settlement.
+
+[[Arthur No-Mane]] took the [[Sacred Samara]] and planted the seed in [[Elmbridge]].

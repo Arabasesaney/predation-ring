@@ -1,0 +1,1 @@
+A bottle full of arcing electricity. When closed it's useful as a bright light source. When opened it discharges voltaic destruction. [[Arthur No-Mane]] traded this from [[Wheeler]] in [[Session 5 - Summer, Year 2]].

@@ -1,0 +1,1 @@
+An absolutely raucous tavern in [[Croaking Cove]]. Run and frequented by [[Pond Pirates]], it is also a drinking hole for all pirates across the land. It was first encountered in [[Session 5 - Summer, Year 2]].

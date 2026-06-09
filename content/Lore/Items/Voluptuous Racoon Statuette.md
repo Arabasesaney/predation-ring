@@ -1,0 +1,3 @@
+Just... wow....
+
+It was found in [[Shipwreck Shoal]] and traded to [[Wheeler]] in [[Session 5 - Summer, Year 2]].

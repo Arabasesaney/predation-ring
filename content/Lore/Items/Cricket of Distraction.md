@@ -1,0 +1,1 @@
+A wind-up clockwork cricket that makes an irritating noise. It's almost impossible to ignore and very useful for creating distractions.
