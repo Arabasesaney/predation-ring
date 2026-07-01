@@ -1,0 +1,1 @@
+The bat cleric of the [[Dark Bulb]]. She sleeps through most meetings of the [[Pantheon of the Evertree]].

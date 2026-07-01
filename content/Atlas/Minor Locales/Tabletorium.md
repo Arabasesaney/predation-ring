@@ -1,0 +1,1 @@
+A vast library of clay tablets written in [[Mole]] brail. It is located in [[Cobblekeep]].

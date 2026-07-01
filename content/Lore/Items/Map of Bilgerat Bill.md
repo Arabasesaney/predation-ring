@@ -5,3 +5,5 @@ A riddle more than a treasure map it reads thus:
 *A cloudy chamber in the skies, my body tells where treasure lies*
 
 On the back is a rat skull in profile with crossed bones behind it; the sigil of [[Bilgerat Bill]]. It is thought that this riddle leads to the buried treasure of the legendary pirate.
+
+The heroes determined that what the map hinted towards was the construction of the [[Ancient Compass]].

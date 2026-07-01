@@ -10,6 +10,7 @@ Fortresses
 
 Burrows
 - [[Sinkhole]]
+- [[Tunnel of Silent Dread]]
 
 Hollows
 

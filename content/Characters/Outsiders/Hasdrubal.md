@@ -1,0 +1,1 @@
+A pompous frog of short temper. He is the early representative of the [[Veridian Stem]].

@@ -1,0 +1,1 @@
+A sturdy castle of pebbles and clay from the [[Estuary]]. It is the center of [[Deeproot]] and the seat of [[Underqueen Aurelia, the Darkstar]].

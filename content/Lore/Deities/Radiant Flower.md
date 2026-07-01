@@ -1,0 +1,1 @@
+The Evertree's embodiment of the golden Sun. It's representative on the [[Pantheon of the Evertree]] is []

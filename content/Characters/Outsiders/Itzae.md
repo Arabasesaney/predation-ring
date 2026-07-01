@@ -1,0 +1,1 @@
+[[Salamander]] priest and representative of the [[Radiant Flower]]. She is a black salamander with yellow spots.
