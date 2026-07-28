@@ -1,1 +1,1 @@
-A bright orange and red samara from an ancient Sacred Maple. To fulfill the prophecy and return the [[Knights of the Autumn King]] it must be planted into a new Sacred Maple.
+A bright orange and red samara from an ancient Sacred Maple. To fulfill the prophecy and return the [[Knights of the Autumn King]] it must be planted into a new [[Sacred Maple]].

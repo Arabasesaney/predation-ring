@@ -1,1 +1,0 @@
-A small houseboat for [[Flint Toothache]] to remain hidden from his pursuer [[Eddy Blacksnout]]. It is often seen moored near [[Elmbridge]] or towed behind the [[Shrew's Revenge]].

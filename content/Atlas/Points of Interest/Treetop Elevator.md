@@ -1,0 +1,1 @@
+A large commuter elevator run by enterprising squirrels spanning between [[Wooded Glade]] and [[Canopy]]. It allows non-flyers to get between the two places.

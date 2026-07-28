@@ -1,0 +1,1 @@
+A stone etching on top of a small hill in [[Wooded Glade]]. [[Arthur No-Mane]] carved a reference to [[Dantalion the Unseen]]'s lair in it to help guide others towards it.

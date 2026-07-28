@@ -1,0 +1,1 @@
+Part of the riddle of the [[Map of Bilgerat Bill]], it was found in [[Session 7 - Winter, Year 2]]. It turned how to be the [[Lair of Dantalion]] who already possessed the piece of the map.

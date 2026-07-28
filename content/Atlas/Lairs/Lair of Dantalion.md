@@ -1,0 +1,1 @@
+Located in northeastern [[Canopy]], the heroes were brought to it blindfolded in [[Session 7 - Winter, Year 2]] to treat with [[Dantalion the Unseen]].

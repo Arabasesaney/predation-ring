@@ -17,7 +17,7 @@ A joint invasion of Frogs and Rats was seen coming down [[Whiskerrun River]] fro
 ## Flint Captured ##
 [[Elmbridge]] having repelled the attackers, [[Arthur No-Mane]] and [[Alistair]] jumped astride [[Donkus]] and rode after the ship along land. The rat ship eventually arrived in [[Bucktooth Bay]] where [[Flint Toothache]] was summoned from the brig. [[Eddy Blacksnout]] proposed a deal: [[Flint Toothache]] would bring them to the place where the ship he lost sank. There was a message in a bottle lost in the ship and [[Flint Toothache]] would use the diving bell to descend to the bottom of [[Bucktooth Bay]] and retrieve it. Having no other choice, [[Flint Toothache]] agreed.
 
-While at the bottom of [[Bucktooth Bay]], [[Flint Toothache]] swam out to his sank ship. There he found the message in a bottle as well as sword he lost with the ship. Returning to the diving bell he sensed a presence of [[Something Dwelling in Bucktooth Bay]].
+While at the bottom of [[Bucktooth Bay]], [[Flint Toothache]] swam out to his sank ship. There he found the message in a bottle as well as the legendary sword [[Ratfang]] he lost with the ship. Returning to the diving bell he sensed a presence of [[Something Dwelling in Bucktooth Bay]].
 
 [[Arthur No-Mane]], having sworn to bring down [[Pirate King Rankle]] was blessed with inability to drown. Utilizing this, he walked along the bottom of [[Bucktooth Bay]] to and wrapped the anchor of the ship around some rocks to prevent it from sailing away.
 
@@ -32,10 +32,10 @@ They sailed into [[Croaking Cove]] in the night and fog. Avoiding patrolling [[F
 
 One of the prisoners pressed into service was [[Karasu]]. Glad to be out of the gibbets, [[Karasu]] reported to [[Arthur No-Mane]] his news from [[Dantalion the Unseen]]. They had heard that the [[Pantheon of the Evertree]] had thrown their lot in with [[Lampades the All-Seeing]] and felt it was extremely unwise. Once escaped from [[Croaking Cove]], [[Karasu]] planned to fly back to the [[Crow's Nest]] to report to his superior [[Blacktalon Ren]]. 
 
-With their new ship, branded the [[Shrew's Revenge]], the pair took sail towards [[Shipwreck Shoal]].
+With their new ship, branded the [[Shrews Revenge]], the pair took sail towards [[Shipwreck Shoal]].
 
 ## Naval Battle with Yazcabal ##
-[[Yazcabal, Occult Opossum]] was sailing hot on their heels however. His cultist crew was gaining on them and appeared to be working some occult ritual aboard. [[Arthur No-Mane]] and [[Flint Toothache]] turned their ship about in an attempt to ram. This turned out to be a disastrous move as the [[Shrew's Revenge]] was broadsided by arrows.
+[[Yazcabal, Occult Opossum]] was sailing hot on their heels however. His cultist crew was gaining on them and appeared to be working some occult ritual aboard. [[Arthur No-Mane]] and [[Flint Toothache]] turned their ship about in an attempt to ram. This turned out to be a disastrous move as the [[Shrews Revenge]] was broadsided by arrows.
 
 [[Flint Toothache]] and [[Arthur No-Mane]] lead a boarding party over to the assailing ship but ended up in the water. [[Flint Toothache]] was able to swim to the ship, but [[Arthur No-Mane]] sank like a stone. [[Yazcabal, Occult Opossum]] finished his eldritch ritual to summon [[Lorelei the Hungry]] from the depths. The glowing, blood-red eel appeared before the submerged [[Arthur No-Mane]].
 
@@ -43,7 +43,7 @@ With their new ship, branded the [[Shrew's Revenge]], the pair took sail towards
 
 [[Arthur No-Mane]] barely avoided being swallowed by [[Lorelei the Hungry]]. Grabbing one of her scaled, he road her out of the water and was flung through the air onto the deck of the ship. [[Flint Toothache]] engaged [[Yazcabal, Occult Opossum]] with his sword, cutting a bloody X onto the opossum and hurling him into the water. [[Lorelei the Hungry]] was attracted by the blood and devoured her follower. Appeased for now, the eel swam off.
 
-Shaken, the heroes tied their newly won ship to the [[Shrew's Revenge]] and sailed off. From the ship they gained a fair bit of wealth along side the [[Cricket of Distraction]].
+Shaken, the heroes tied their newly won ship to the [[Shrews Revenge]] and sailed off. From the ship they gained a fair bit of wealth along side the [[Cricket of Distraction]].
 
 ## Shipwreck Shoal ##
 Reaching [[Shipwreck Shoal]] they ran aground. Stuck under the blazing sun for several days [[Flint Toothache]] and the [[Shrews]] made repairs to their ship. Meanwhile, [[Arthur No-Mane]] investigated a pristine sunken ship. There was luckily an undamaged wine rack full of expensive vintages they could salvage for wealth. In addition, [[Arthur No-Mane]] found the [[Voluptuous Racoon Statuette]].

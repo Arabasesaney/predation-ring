@@ -11,7 +11,7 @@ Having settled in in [[Croaking Cove]], the heroes started their journey far fro
 [[Karasu]] reported that [[Dantalion the Unseen]] was shocked by this development. As [[Lampades the All-Seeing]] hates [[Dantalion the Unseen]] for stealing his eye, the fox would likely be out for vengeance.
 # Adventure #
 ## Deeproot ##
-Intent on tracking down the [[Nautilus Trihelm]], the heroes set sail on the [[Shrew's Revenge]]. They interpreted the [[Map of Bilgerat Bill]] would lead them to the [[Undertunnels]] so they visited [[Deeproot]] to source information. Seeking an audience with [[Underqueen Aurelia, the Darkstar]] they gained access to the [[Tabletorium]] in [[Cobblekeep]].
+Intent on tracking down the [[Nautilus Trihelm]], the heroes set sail on the [[Shrews Revenge]]. They interpreted the [[Map of Bilgerat Bill]] would lead them to the [[Undertunnels]] so they visited [[Deeproot]] to source information. Seeking an audience with [[Underqueen Aurelia, the Darkstar]] they gained access to the [[Tabletorium]] in [[Cobblekeep]].
 
 In the [[Tabletorium]], [[Flint Toothache]] found references to the [[Tunnel of Silent Dread]]. Using the knowledge the gained a guide they started the journey through the dark [[Undertunnels]].
 
@@ -21,9 +21,9 @@ Using the [[Lightning in a Bottle]] to light the way, the trio meandered through
 At the end of the tunnel was cavern with a pristine rum shipment and a treasure chest of gold and silver. In the chest was one of the three pieces of the [[Ancient Compass]]. [[Flint Toothache]] pocketed it and the heroes fled the [[Undertunnels]].
 
 ## Trouble at Sea ##
-Reembarking on the [[Shrew's Revenge]] the heroes sailed the [[Estuary]] out to the coast of [[Salt Wind Dunes]]. There they searched for a [[Cave Beneath the Ocean Spray]].  A storm came blowing in tossing the [[Shrew's Revenge]] about in the waves. While they wrestled with the storm, a large fish bit the ship and punctured it. [[Arthur No-Mane]] and [[Flint Toothache]] got the crew in order to narrowly escape the situation. Battered and soggy they made their way to the shore. 
+Reembarking on the [[Shrews Revenge]] the heroes sailed the [[Estuary]] out to the coast of [[Salt Wind Dunes]]. There they searched for a [[Cave Beneath the Ocean Spray]].  A storm came blowing in tossing the [[Shrews Revenge]] about in the waves. While they wrestled with the storm, a large fish bit the ship and punctured it. [[Arthur No-Mane]] and [[Flint Toothache]] got the crew in order to narrowly escape the situation. Battered and soggy they made their way to the shore. 
 
-Unfortunately, while repairing their ship on shore [[Eddy Blacksnout]] caught up to them. His ship appearing on the horizon, the crew prepared for a ground assault. The [[Shrews]] created a defensive ring and held the incursion at bay. [[Arthur No-Mane]], utilizing his oath to defeat [[Pirate King Rankle]], waded under the water to the anchor of [[Eddy Blacksnout]]'s ship. He climbed the anchor and cut the rigging and caused general chaos. Having turned back the [[Sea Rats]], the [[Shrew's Revenge]] was pushed out to sea and escape again.
+Unfortunately, while repairing their ship on shore [[Eddy Blacksnout]] caught up to them. His ship appearing on the horizon, the crew prepared for a ground assault. The [[Shrews]] created a defensive ring and held the incursion at bay. [[Arthur No-Mane]], utilizing his oath to defeat [[Pirate King Rankle]], waded under the water to the anchor of [[Eddy Blacksnout]]'s ship. He climbed the anchor and cut the rigging and caused general chaos. Having turned back the [[Sea Rats]], the [[Shrews Revenge]] was pushed out to sea and escape again.
 
 They sailed to a [[Lighthouse]] on the coast where they met [[Finn the Lightkeeper]]. [[Stella the Snuggly]] smoke catnip with him and questioned him about the area. This gave them a lead to the [[Cave Beneath the Ocean Spray]].
 

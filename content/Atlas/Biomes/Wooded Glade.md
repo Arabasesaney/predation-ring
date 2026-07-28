@@ -13,12 +13,16 @@ Burrows
 
 
 Hollows
+- [[Pileated Penthouse]]
 
 
 Points of Interest
+- [[Ivy Thicket]]
+- [[Treetop Elevator]]
 
 
 Vantages
+- [[Hillock Stone Map]]
 
 
 Lairs

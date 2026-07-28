@@ -1,0 +1,1 @@
+100-ft of lightweight, high-tensile rope. Braided from the finest of silks. It is in the possession of [[Flint Toothache]].
