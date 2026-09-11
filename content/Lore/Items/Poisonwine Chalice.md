@@ -1,0 +1,1 @@
+A golden chalice that continuously fills with poisoned wine. Used by [[Bilgerat Bill]] to poison his whole crew before likewise dying in his hideout. It was found still in his hands in [[Session 8 - Spring, Year 3]].

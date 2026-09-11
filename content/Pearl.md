@@ -1,0 +1,1 @@
+An otter mystic who listens to a conch shell in [[Salt Wind Dunes]]. She is the namesake of [[Pearls Oasis]].

@@ -1,0 +1,1 @@
+A jagged, flinty blade used to empower those who willing spill their own blood. It was given to the heroes by [[Sorin, the Walnut King]]].

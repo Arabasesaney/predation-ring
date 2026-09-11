@@ -1,0 +1,1 @@
+A old badger longship fully sunk beneath the sands of [[Salt Wind Dunes]]. It was discovered, and then destroyed in [[Session 9 - Summer, Year 3]].

@@ -1,1 +1,3 @@
 A ponderous tortoise with a fortress built onto it's shell. Manned by [[Salamander]] crews it is a walking weapon of destruction. One was seen headed towards the [[High Grass Meadow]] in [[Session 5 - Summer, Year 2]].
+
+A [[Siege Tortoise]] commanded by [[Fane the Kindler]] besieged [[Elmbridge]] in [[Session 7 - Winter, Year 2]], but was repelled by the stout village. [[Stella the Snuggly]] assaulted it singlehandedly and destroyed the fort on it's back.

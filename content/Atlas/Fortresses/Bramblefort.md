@@ -1,3 +1,5 @@
 A large an imposing fort built of sticks. In the bottom of a valley it sits upon a mount giving it a vantage. A moat made of dense thorny brushes surrounds it, making it very difficult to storm the walls. It also has a tunneled connection to the [[Lair of Lampades]].
 
 It was held by the weasel forces of [[Lampades the All-Seeing]] until [[Session 4a - Winter, Year 1]]. The heroes stormed the castle causing chaos and defeating it's leader [[Thane Ivar Kill-Coney]]. This allowed the [[Golden Company]] (which had been sieging it for weeks) to storm the Bramblefort and take control of it.
+
+Afterward, once [[Lampades the All-Seeing]] gained the backing of the [[Pantheon of the Evertree]], he summoned lightning to turn the fort into a smoking ruin.

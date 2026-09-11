@@ -1,1 +1,1 @@
-An settlement in the shadow of [[Curiel the Immortal]]'s lair.
+An settlement in the shadow of [[Curiel the Immortal]]'s lair in the [[High Grass Meadow]].

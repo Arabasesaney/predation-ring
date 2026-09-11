@@ -1,0 +1,1 @@
+The famed ship of [[Bilgerat Bill]]. It is a sturdy galleon that is deceptively quick. It has a bloodred sail and is the veteran of many battles.

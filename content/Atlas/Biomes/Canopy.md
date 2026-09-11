@@ -1,4 +1,4 @@
-A large pond to the east of [[High Grass Meadow]].
+A twisting land of interconnected branches high above the [[Wooded Glade]].
 
 <img src="/Canopy.jpg" style="max-width: 100%"  width="auto" height="auto" alt="">
 

@@ -1,0 +1,1 @@
+A simple black-iron ring that when placed on the paw of a dead creature, partially returns them to life to answer three questions. It was given to the heroes by [[Sorin, the Walnut King]].

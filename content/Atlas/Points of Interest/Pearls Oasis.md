@@ -1,0 +1,1 @@
+A freshwater oasis in the [[Salt Wind Dunes]]. Here resides [[Pearl]]. It was discovered, and quickly left in [[Session 9 - Summer, Year 3]].

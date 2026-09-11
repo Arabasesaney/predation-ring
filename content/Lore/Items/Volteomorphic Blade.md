@@ -1,0 +1,1 @@
+A sword of pure amber and lightning. Forged by [[Jord Hammerpaw]] from the remnants of [[Lampades the All-Seeing]]'s eye. It can take the shape of any weapon with a thought from it's wielder. Additionally, it can be briefly transmuted into a bolt of lightning and hurled.

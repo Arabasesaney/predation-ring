@@ -1,0 +1,1 @@
+A crystal decanter with silvery liquid within. It can be poured out to create a mirror that reflects truth and magic.
