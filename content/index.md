@@ -17,4 +17,4 @@ Hopefully this information will give you the wisdom to free us from the [[Tyrant
 |  ⛧  | [[Lampades the All-Seeing]] |
 | :-: | :-------------------------: |
 |  ☾  |  [[Dantalion the Unseen]]   |
-|  ⊙  |   [[Lorelei the Hungry]]]   |
+|  ⊙  |   [[Lorelei the Hungry]]    |
