@@ -1,0 +1,3 @@
+*Slow*. Hollowing out the end of [[Dantalion the Unseen]]'s talon leaves a curved horn etched with runes. It's power can only be used at night. Blowing on the horn emits no noise, instead deadening sound everywhere in Long distance. A strange silent wind swirls around the horn blower and up to five companions. They gain the ability to fly for the Scene. Recharges on Settle In.
+
+It is held by [[Stella the Snuggly]].

@@ -1,0 +1,1 @@
+Chicakee leader of the [[Barony of Shimmerwing]] and de facto ruler of [[Silverbirch Glen]]. She is the mother of many children, including [[Characters/Heroes/Theodore Shimmerwing III]].

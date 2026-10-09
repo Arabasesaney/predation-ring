@@ -1,0 +1,3 @@
+A long sleek arrow painstakingly crafted from the pinion feather of [[Dantalion the Unseen]] and tipped with his talon shards. When fit into a drawn bow, the wielder is endowed with the unnatural perception and killer instinct of an owl. Released, a Nightwing Arrow creates it's own air currents and can bend around and between objects to hit impossible targets. Do not roll, the shot counts as a 12+. There are a limited number of arrows: recharges on Settle In and cannot be recharged.
+
+They are held by [[Flint Toothache]].

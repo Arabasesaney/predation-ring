@@ -5,9 +5,9 @@
 Having slain [[Lampades the All-Seeing]] and secured the [[Nautilus Trihelm]] from the lost hoard of [[Bilgerat Bill]], the heroes turn their attention to [[Dantalion the Unseen]].
 
 ## Village ##
-[[Arthur No-Mane]] sent the [[Shrews]] to aid [[Alistair]] in the training of an [[Elmbridge]] militia force. This time the training goes well, and a cohesive militia begins to form.
+[[Arthur No-Mane]] sent the [[Shrews]] to aid [[Alistair the Scarred]] in the training of an [[Elmbridge]] militia force. This time the training goes well, and a cohesive militia begins to form.
 
-[[Jord Hammerpaw]] in his newly minted smithy stokes the flames to craft items of eldritch power. The fragments from the eye of [[Lampades the All-Seeing]] are forged into new implements of power. From the shards he crafts the [[Volteomorphic Blade]], [[Oculus of Fossilized Visions]], and the [[Orb of Electroconveyance]].
+[[Jord Hammerpaw]] in his newly minted smithy stokes the flames to craft items of eldritch power. The fragments from the eye of [[Lampades the All-Seeing]] are forged into new implements of power. From the shards he crafts the [[Volteomorphic Blade]], [[Oculus of Fossilized Visions]], and the [[Orb of Arcing Conveyance]].
 # Adventure #
 ## Interrogating Karasu ##
 The heroes find [[Karasu]] in a disagreement with a difficult woodpecker who stole something of the crows. [[Stella the Snuggly]] solves the situation by bursting into the nest of the woodpecker, roughing him up, and return [[Karasu]]'s lost possession. 
@@ -22,7 +22,7 @@ The heroes find [[Karasu]] in a disagreement with a difficult woodpecker who sto
 The duel was brutal, but punctuated with many manly compliments to one another's fighting prowess. In the end, [[Arthur No-Mane]] prevailed and the injured [[Peridot the Darting Blade]] swore to serve him.
 
 ## Confronting Dantalion ##
- [[Stella the Snuggly]] uses the [[Orb of Electroconveyance]] to teleport to the top of the tree in hopes of surprising the owl. Instead, they find a murder of crow ninjas ready to ambush them. [[Karasu]] had double-crossed them.
+ [[Stella the Snuggly]] uses the [[Orb of Arcing Conveyance]] to teleport to the top of the tree in hopes of surprising the owl. Instead, they find a murder of crow ninjas ready to ambush them. [[Karasu]] had double-crossed them.
 
 An all-out brawl ensued as a dark film began to blacken the daylight. [[Blacktalon Ren]] joined the fray and dueled [[Arthur No-Mane]] across the narrow boughs of [[Canopy]]. Their duel was short and brutal: [[Arthur No-Mane]] struck her down with the [[Volteomorphic Blade]]. Just as the heroes felt they were getting the upper hand, day turned to night and a full moon replaced the sun in the sky. A silhouette passed across the moon and [[Dantalion the Unseen]] joined the fray.
 
@@ -64,6 +64,8 @@ The heroes visit the [[Cliffside Monument]]: a gigantic statue of a badger lord 
 >*The cliffside monument stands as a guide for the badger warriors to return when the banners are once again called. Nikos has been putting more wood to the flame as of late; he can feel that the time is once again approaching. The badgers have already begun to row.*
 
 # Epilogue #
-The [[Sacred Maple]] has grown to it's full height, and as the summer ends it's leaves begin to show an iridescence of power. With two tyrants defeated and [[Elmbridge]] entering the spotlight, the hopes of the woodland creatures rest upon the heroes.
+The [[Sacred Maple]] has grown to it's full height, and as the summer ends it's leaves begin to show an iridescence of power. [[Arthur No-Mane]] sacrificed his eye to gain the powers of the [[Oculus of Fossilized Visions]]. With this, he had a vision of [[Maeve]] the chosen of the [[Russet Leaf]] passing on her wisdom and dying of old age. With this, her powers were bestowed upon [[Arthur No-Mane]]; he became the new earthly chosen of the [[Russet Leaf]].
+
+With two tyrants defeated and [[Elmbridge]] entering the spotlight, the hopes of the woodland creatures rest upon the heroes.
 
 And so to, does the ire of the tyrants.

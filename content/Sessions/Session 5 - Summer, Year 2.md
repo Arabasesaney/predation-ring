@@ -15,7 +15,7 @@ A joint invasion of Frogs and Rats was seen coming down [[Whiskerrun River]] fro
 # Adventure #
 
 ## Flint Captured ##
-[[Elmbridge]] having repelled the attackers, [[Arthur No-Mane]] and [[Alistair]] jumped astride [[Donkus]] and rode after the ship along land. The rat ship eventually arrived in [[Bucktooth Bay]] where [[Flint Toothache]] was summoned from the brig. [[Eddy Blacksnout]] proposed a deal: [[Flint Toothache]] would bring them to the place where the ship he lost sank. There was a message in a bottle lost in the ship and [[Flint Toothache]] would use the diving bell to descend to the bottom of [[Bucktooth Bay]] and retrieve it. Having no other choice, [[Flint Toothache]] agreed.
+[[Elmbridge]] having repelled the attackers, [[Arthur No-Mane]] and [[Alistair the Scarred]] jumped astride [[Donkus]] and rode after the ship along land. The rat ship eventually arrived in [[Bucktooth Bay]] where [[Flint Toothache]] was summoned from the brig. [[Eddy Blacksnout]] proposed a deal: [[Flint Toothache]] would bring them to the place where the ship he lost sank. There was a message in a bottle lost in the ship and [[Flint Toothache]] would use the diving bell to descend to the bottom of [[Bucktooth Bay]] and retrieve it. Having no other choice, [[Flint Toothache]] agreed.
 
 While at the bottom of [[Bucktooth Bay]], [[Flint Toothache]] swam out to his sank ship. There he found the message in a bottle as well as the legendary sword [[Ratfang]] he lost with the ship. Returning to the diving bell he sensed a presence of [[Something Dwelling in Bucktooth Bay]].
 

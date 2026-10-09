@@ -2,4 +2,4 @@ A chivalrous and upstanding hummingbird knight formerly in the service of [[Dant
 
 He later revealed that he squired for a knight who was a member of the [[Knights of the Autumn King]] many years ago.
 
-He now resides in [[Elmbridge]] and serves alongside [[Alistair]].
+He now resides in [[Elmbridge]] and serves alongside [[Alistair the Scarred]].

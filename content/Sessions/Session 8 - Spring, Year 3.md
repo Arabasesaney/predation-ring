@@ -37,7 +37,7 @@ He asked the heroes if they would serve him, but [[Arthur No-Mane]] flatly refus
 # Village #
 The party returned victoriously. Many days of ceremony and celebration ensued. The warriors who lost their lives were remembered on the [[Memorial Bridge]]. Word traveled quickly about the heroes who slew a tyrant.
 
-[[Alistair]] continued struggling to cobble together a disciplined militia. After two seasons, however, it was not going well.
+[[Alistair the Scarred]] continued struggling to cobble together a disciplined militia. After two seasons, however, it was not going well.
 
 ## Visiting Oakenhall ##
 Needing iron to complete the [[Elmbridge]] smithy for [[Jord Hammerpaw]], the heroes trekked across the [[High Grass Meadow]]. They had heard from a squirrel at the [[Treetop Elevator]] that [[Oakenhall]] was the center of civilization and had much to offer.

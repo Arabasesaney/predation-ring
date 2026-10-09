@@ -1,0 +1,1 @@
+This amber mask has shifts with lightning below it's supple surface. Donning the mask allows you to turn into another woodland creature of approximately your same size and abilities. The mask can maintain the power for the Scene. Recharges on Settle In.

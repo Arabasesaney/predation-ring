@@ -1,0 +1,1 @@
+This cloak fashioned from the silent, serrated pinion feather of [[Dantalion the Unseen]] swirls with eldritch power. The wearer is immune to scrying. Additionally the wearer can spend it's charge to disappear in a shower of feathers and reappear elsewhere in Short range. Recharges on Settle In.

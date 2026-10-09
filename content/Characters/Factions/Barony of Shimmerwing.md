@@ -1,0 +1,1 @@
+The ruling political force in [[Silverbirch Glen]]. It's head of state is [[Baroness Victoria Shimmerwing]].

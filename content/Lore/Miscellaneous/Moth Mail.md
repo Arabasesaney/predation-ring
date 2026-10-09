@@ -1,0 +1,1 @@
+A widespread form of delivering letters. A letter is rolled up and tied to a moth which is then sent to it's destination to be delivered.

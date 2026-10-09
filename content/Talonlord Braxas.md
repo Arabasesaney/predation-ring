@@ -1,0 +1,1 @@
+One of the top brass in the [[Golden Company]] of [[Malphas the Golden]]. He lead a failed assault on [[Elmbridge]] in [[Session 10 - Autumn, Year 3]]. Like many warlords, a duel with [[Arthur No-Mane]] was his undoing. 

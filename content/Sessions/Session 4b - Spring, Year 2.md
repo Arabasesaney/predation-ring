@@ -28,7 +28,7 @@ Sure enough, [[Mosely]] was found hiding in the cart. He claimed he was a toad a
 # Autumnal Obelisk #
 At the edge of [[Lily Pad Pond]], the heroes came up on the [[Autumnal Obelisk]]. [[Arthur No-Mane]] immediately recognized it as the rock from his dreams.
 
-A lemming hedge-knight named [[Alistair]] was praying before it. The heroes spent the evening with him and [[Alistair]] told the story of the [[Knights of the Autumn King]]. [[Arthur No-Mane]] instinctively understood to dig at the base of the obelisk where he uprooted the [[Sacred Samara]]. 
+A lemming hedge-knight named [[Alistair the Scarred]] was praying before it. The heroes spent the evening with him and [[Alistair the Scarred]] told the story of the [[Knights of the Autumn King]]. [[Arthur No-Mane]] instinctively understood to dig at the base of the obelisk where he uprooted the [[Sacred Samara]]. 
 
 ## Whippor Willow ##
 The heroes scaled the [[Whippor Willow]] on the edge of [[Lily Pad Pond]] to get a good view. They spotted many sites of adventure including the infamous [[Croaking Cove]], legendary seat of [[Pirate King Rankle]].

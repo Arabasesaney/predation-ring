@@ -1,0 +1,1 @@
+*1C, Indestructible*. Fashioned from the wicked talon of [[Dantalion the Unseen]], this curved sword is swift and silent. The wielder can choose to fight using WIS instead of STR with it. Additionally, it can be thrown like a boomerang in short distance and it unerringly returns to your hand. When this sword is used to sneak attack a target, the user gains Double Advantage. 

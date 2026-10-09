@@ -52,7 +52,7 @@ The deal done, the heroes were blindfolded and flown back to the [[Treetop Eleva
 # Village #
 Before the end of winter, the heroes gathered a number of much needed building supplies to bolster their town. They visited [[Deeproot]] to buy a load of clay as well as [[Finn the Lightkeeper]] at the [[Lighthouse]] in [[Salt Wind Dunes]] to get a load of salt.
 
-[[Alistair]] was put in charge of training a dedicated militia to protect the town, but the first foray was disastrous. A great number of carapace armaments were lost while practicing a winter river crossing.
+[[Alistair the Scarred]] was put in charge of training a dedicated militia to protect the town, but the first foray was disastrous. A great number of carapace armaments were lost while practicing a winter river crossing.
 
 [[Arthur No-Mane]] checked on his year-old [[Sacred Maple]] tree. It resembled closer to a 5-year old tree than a 1-year old. By next year it could be fully grown.
 
