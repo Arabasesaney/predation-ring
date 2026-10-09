@@ -9,7 +9,6 @@
 [[Theodore Shimmerwing III]] arrived in [[Elmbridge]] to open up trade negotiations. He was most interested in meeting the band of heroes responsible for defeating [[Dantalion the Unseen]] and breaking the blockade on his home: [[Silverbirch Glen]]. He had heard this band of heroes was known as "Flint's Guys".
 
 [[Theodore Shimmerwing III]] and [[Arthur No-Mane]] negotiated a trade deal that would allow an influx of books from the [[Barony of Shimmerwing]]. With this, the village could start construction on a library.
-
 ## Hedge Maze ##
 [[Stella the Snuggly]] awoke to a surprise at the start of autumn. The small hedge she had started from a Hawthorne seed had sprung up overnight into a [[Hedge Maze]]. This sprawling maze on the outskirts of [[Elmbridge]] even had a carved stone sign at it's entrance. It read:
 
@@ -22,6 +21,8 @@
 ## Brewing the Maple Elixir ##
 The [[Sacred Maple]] had now grown to it's full height and it's sap was ready to be harvested. The three knights ([[Arthur No-Mane]], [[Alistair the Scarred]], and [[Peridot the Darting Blade]]) worked alchemy through the night. Combining the sap of the tree and the blood of [[Lampades the All-Seeing]] they brewed the fabled [[Maple Elixir]].
 ## Letter from the Pantheon ##
+[[Reginald]] returned after a long hiatus. He was on a mysterious quest with [[Archie the Architect]]...
+
 [[Reginald]] received [[Moth Mail]] from [[Hasdrubal]]. A convening of the [[Pantheon of the Evertree]] would be called during the Spring Equinox. He alluded to the deaths of [[Maeve]] and [[Freya, Chosen of Winter]] and that their replacements must be found and summoned.
 ## Gifts from the Forge ##
 [[Jord Hammerpaw]] worked hard through the season to craft new wonders from the remnants of slain [[Tyrants]]. These wonders were distributed to the heroes:
@@ -42,11 +43,10 @@ In order to prevent the birds from flying over the walls, [[Reginald]] summoned 
 
 [[Arthur No-Mane]], [[Stella the Snuggly]], and [[Theodore Shimmerwing III]] fought savagely on the walls to keep the birds down. [[Flint Toothache]] lead successive arrow volleys with his [[Shrews]]. [[Theodore Shimmerwing III]] accidently fell from the wall and landed amongst the invaders, nearly spelling his end. Luckily, [[Arthur No-Mane]] and [[Stella the Snuggly]] leapt off the wall after him and sped to his rescue.
 
-The tide began to turn as the birds found no purchase on the stout walls of [[Elmbridge]]. [[Stella the Snuggly]] used the [[Orb of Arcing Conveyance]] to transmute herself, [[Arthur No-Mane]], and [[Theodore Shimmerwing III]] into a bolt of lightning. They struck in the center of the [[Golden Company]] command tent and brought the battle to the enemy. [[Talonlord Braxas]] drew forth his rapier and dueled [[Arthur No-Mane]]. [[Featherlord Brutus]] and the royal guard fought [[Stella the Snuggly]] and [[Theodore Shimmerwing III]]. The birds were outmatched; [[Talonlord Braxas]] and [[Featherlord Brutus]] were slain. 
+The tide began to turn as the birds found no purchase on the stout walls of [[Elmbridge]]. [[Stella the Snuggly]] used the [[Orb of Arcing Conveyance]] to transmute herself, [[Reginald]], and [[Theodore Shimmerwing III]] into a bolt of lightning. They struck in the center of the [[Golden Company]] command tent and brought the battle to the enemy. [[Talonlord Braxas]] drew forth his rapier and charged [[Reginald]]. [[Featherlord Brutus]] and the royal guard fought [[Stella the Snuggly]] and [[Theodore Shimmerwing III]]. The birds were outmatched; [[Talonlord Braxas]] and [[Featherlord Brutus]] were slain. 
 
 The battle ended in a rout with the village untouched.
 # Adventure #
-
 ## Sailing to Lorelei ##
 [[Flint Toothache]] summoned [[Eddy Blacksnout]] to his cabin on the [[Vermintide]]. With the [[Nautilus Trihelm]] in hand, [[Flint Toothache]] gave the order to assault the lair of [[Lorelei the Hungry]]. His fleet set forth: the [[Vermintide]], the [[Shrews Revenge]], and the ship of [[Eddy Blacksnout]].
 
@@ -61,7 +61,6 @@ A large fissure opened up in the bottom of [[Lily Pad Pond]]. The fleet of ships
 As the heroes investigated, they heard disturbances in the caves. From the waters of [[Lily Pad Pond]] sailing towards them three [[Fishboats]] crewed by [[Pond Pirates]]. At their helm the dreaded [[Pirate King Rankle]] wielding a fearsome trident.
 
 Through a dark hole behind them, [[Lorelei the Hungry]] emerged.
-
 ## Pirate Ambush ##
 A chaotic melee ensued. Ballistae volleyed bolts from the [[Fishboats]]. [[Shrews]] shot arrows back at the frog pirates. [[Lorelei the Hungry]] swept her phosphorescent tail and gnashed her teeth at the fleet of ships.
 
@@ -71,11 +70,9 @@ A chaotic melee ensued. Ballistae volleyed bolts from the [[Fishboats]]. [[Shrew
 
 [[Flint Toothache]] used the power of the [[Nautilus Trihelm]] to dump the contents of the roiling blood cauldron, robbing [[Lorelei the Hungry]] of her magical focus. She retaliated by chopping him with her massive maw, nearly mangling him. [[Reginald]] and [[Theodore Shimmerwing III]] came to his rescue. [[Theodore Shimmerwing III]] bravely interposed himself between [[Lorelei the Hungry]] and [[Flint Toothache]], being hurled bloody and unconscious. [[Reginald]] shot a ballista bolt through [[Lorelei the Hungry]]'s eye, injuring and distracting her.
 
-As the killing blow to [[Lorelei the Hungry]] was dealt, the frog pirates began to rout. [[Arthur No-Mane]] did not allow [[Pirate King Rankle]] to escape and struck him down as well, fulfilling his vow.
-
+[[Reginald]] dealt the killing blow to [[Lorelei the Hungry]] with a final ballista bolt through the eel's eye. As the frog pirates began to rout. [[Arthur No-Mane]] did not allow [[Pirate King Rankle]] to escape and struck him down as well, fulfilling his vow.
 # Epilogue #
 Only the [[Vermintide]] returned with the bones of [[Lorelei the Hungry]] in tow. The heroes weary but victorious, they returned to [[Elmbridge]] to spread the good news: another tyrant has fallen.
-
 ## Fall of Deeproot ##
 As the first snows began to fall, a strange huddled mass of people appeared on the road to [[Elmbridge]]. As warning bells were rang, [[Arthur No-Mane]] came to the wall to see mole refugees at the walls. They were lead by none other than [[Underqueen Aurelia, the Darkstar]].
 
