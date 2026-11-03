@@ -1,0 +1,1 @@
+The portly rat priest of the [[Church of Ninth Life]] in [[Cratecastle]]. He met his end in [[Session 11 - Winter, Year 3]]

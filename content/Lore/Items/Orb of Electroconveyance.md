@@ -1,0 +1,1 @@
+An orb forged by [[Jord Hammerpaw]] and created from the eye-shards of [[Lampades the All-Seeing]]. All who place their hands upon the orb can use it to transmute into a lightning bolt and travel astounding distances.

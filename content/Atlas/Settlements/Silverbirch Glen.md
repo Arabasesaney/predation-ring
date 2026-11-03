@@ -1,0 +1,1 @@
+Located in northern [[Canopy]], it is the home of [[Theodore Shimmerwing III]]. It was blockaded by [[Dantalion the Unseen]]'s forces. Since the owl's demise, the [[Barony of Shimmerwing]] has reopened trade relations.

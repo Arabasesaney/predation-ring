@@ -1,0 +1,1 @@
+A dilapidated, circular bar in the town of [[Catsylvania]]. It has a soybean press in the basement and was known for serving alcohol to [[Ninth Legion]] rats. It's owner, [[Vincent]], only used his position as bartender to gather information on [[Curiel the Immortal]]. The Saucer, in fact, was the center of rebellion in [[Catsylvania]].

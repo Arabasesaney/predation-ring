@@ -1,0 +1,1 @@
+A constantly singed rabbit with an endlessly smoking tail, Sir Montebank of the Shining Sun is the earthly representative of the [[Radiant Flower]].

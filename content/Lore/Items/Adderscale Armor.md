@@ -1,0 +1,1 @@
+Armor made from snake scales. The helm is shaped like an adder with it's fangs' bared. [[Sir Montebank]] found it buried under the snow in [[High Grass Meadow]] and gifted it to [[Arthur No-Mane]].

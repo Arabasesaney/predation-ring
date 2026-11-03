@@ -1,0 +1,1 @@
+A mysterious marble statue found in the [[Hedge Maze]]. It's legs were gifted by the [[Chimera]].

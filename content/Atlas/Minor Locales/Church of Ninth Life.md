@@ -1,0 +1,1 @@
+The official religion of [[Curiel the Immortal]]. It was presided over by [[Cupbearer Oleg]] and required daily donations of soymilk catnip to keep the cat goddess appeased. When a member's donation was not sufficient, they were often devoured by the cat as a sacrifice.

@@ -1,1 +1,0 @@
-North of the [[Wooded Glade]], it is the home of [[Characters/Heroes/Theodore Shimmerwing III]]. It was blockaded by [[Dantalion the Unseen]]'s forces. Since the owl's demise, the [[Barony of Shimmerwing]] has reopened trade relations.
