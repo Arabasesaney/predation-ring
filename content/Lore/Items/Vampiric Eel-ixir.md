@@ -1,0 +1,1 @@
+A potion distilled from the marrow of [[Lorelei the Hungry]]. It transmute the drinker into a were-eel, granting some of the eel's physical powers.

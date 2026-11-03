@@ -1,1 +1,1 @@
-A [[Vole]] light house keeper who lives at the [[Lighthouse]] in [[Salt Wind Dunes]]. The party first met him in [[Session 6 - Autumn, Year 2]].
+A [[Vole]] light house keeper who lives at the [[Old Seaglass Lighthouse]] in [[Salt Wind Dunes]]. The party first met him in [[Session 6 - Autumn, Year 2]].

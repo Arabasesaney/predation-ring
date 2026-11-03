@@ -1,0 +1,1 @@
+Armor made from the cursed-marrow-bones of [[Lorelei the Hungry]]. It feeds on the blood of it's host to regrow itself.

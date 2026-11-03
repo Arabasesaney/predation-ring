@@ -1,1 +1,1 @@
-???
+Supposedly east of [[Wooded Glade]] and north of [[Lily Pad Pond]].

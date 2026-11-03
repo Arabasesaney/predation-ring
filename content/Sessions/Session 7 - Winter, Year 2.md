@@ -50,7 +50,7 @@ As part of the deal, [[Dantalion the Unseen]] agreed to furnish each warrior fro
 
 The deal done, the heroes were blindfolded and flown back to the [[Treetop Elevator]].
 # Village #
-Before the end of winter, the heroes gathered a number of much needed building supplies to bolster their town. They visited [[Deeproot]] to buy a load of clay as well as [[Finn the Lightkeeper]] at the [[Lighthouse]] in [[Salt Wind Dunes]] to get a load of salt.
+Before the end of winter, the heroes gathered a number of much needed building supplies to bolster their town. They visited [[Deeproot]] to buy a load of clay as well as [[Finn the Lightkeeper]] at the [[Old Seaglass Lighthouse]] in [[Salt Wind Dunes]] to get a load of salt.
 
 [[Alistair the Scarred]] was put in charge of training a dedicated militia to protect the town, but the first foray was disastrous. A great number of carapace armaments were lost while practicing a winter river crossing.
 

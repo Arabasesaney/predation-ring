@@ -16,7 +16,7 @@ A singed hare with a perpetually smoking hare made quite an entrance to [[Elmbri
 ## Letter from Ophelia ##
 The sister of [[Theodore Shimmerwing III]] sent a letter by [[Moth Mail]] to [[Elmbridge]] for her brother. In it she complained of her mother, [[Baroness Victoria Shimmerwing]], had contracted weasels as mercenaries for the [[Barony of Shimmerwing]]. She was very unhappy about it.
 ## Letter from Abdul ##
-[[Abdul]] over in [[Croaking Cove]] sent a letter via [[Moth Mail]] to [[Flint Toothache]]. He said that the [[Dreadfort]] was in chaos and the [[Ribbet & Gibbet]] almost burned down. He asked that [[Flint Toothache]] come to the island and reinstate order as the new pirate king.\
+[[Abdul]] over in [[Croaking Cove]] sent a letter via [[Moth Mail]] to [[Flint Toothache]]. He said that the [[Dreadfort]] was in chaos and the [[Ribbet & Gibbet]] almost burned down. He asked that [[Flint Toothache]] come to the island and reinstate order as the new pirate king.
 ## The Tenth Claw ##
 [[Arthur No-Mane]] met with [[Underqueen Aurelia, the Darkstar]] to trade blades. Handing over his [[Volteomorphic Blade]], [[Arthur No-Mane]] finally held the terrifying [[Tenth Claw]]: the sword forged from the claw of [[Curiel the Immortal]]. [[Arthur No-Mane]] promised that he would slay [[Curiel the Immortal]] and then they would turn to take back [[Deeproot]] from the clutches of [[Diabolus the Resurrector]].
 # Adventure #

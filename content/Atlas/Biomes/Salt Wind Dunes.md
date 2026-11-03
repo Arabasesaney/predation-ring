@@ -8,9 +8,16 @@ Fortresses
 
 Burrows
 - [[Cave Beneath the Ocean Spray]]
+- [[Sunken Ship]]
 
 Hollows
 
 Points of Interest
+- [[Pearls Oasis]]
+- [[Mermaid Market]]
+
+Vantages
+- [[Old Seaglass Lighthouse]]
 
 Lairs
+- [[Lair of Abraxas]]

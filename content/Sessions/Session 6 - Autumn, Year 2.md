@@ -25,7 +25,7 @@ Reembarking on the [[Shrews Revenge]] the heroes sailed the [[Estuary]] out to t
 
 Unfortunately, while repairing their ship on shore [[Eddy Blacksnout]] caught up to them. His ship appearing on the horizon, the crew prepared for a ground assault. The [[Shrews]] created a defensive ring and held the incursion at bay. [[Arthur No-Mane]], utilizing his oath to defeat [[Pirate King Rankle]], waded under the water to the anchor of [[Eddy Blacksnout]]'s ship. He climbed the anchor and cut the rigging and caused general chaos. Having turned back the [[Sea Rats]], the [[Shrews Revenge]] was pushed out to sea and escape again.
 
-They sailed to a [[Lighthouse]] on the coast where they met [[Finn the Lightkeeper]]. [[Stella the Snuggly]] smoke catnip with him and questioned him about the area. This gave them a lead to the [[Cave Beneath the Ocean Spray]].
+They sailed to a [[Old Seaglass Lighthouse]] on the coast where they met [[Finn the Lightkeeper]]. [[Stella the Snuggly]] smoke catnip with him and questioned him about the area. This gave them a lead to the [[Cave Beneath the Ocean Spray]].
 
 ## Cave Beneath the Ocean Spray ##
 A tidal cave system hid the next location on the [[Map of Bilgerat Bill]]: the [[Cave Beneath the Ocean Spray]]. They navigated the cave system in low tide, lighting the way with the [[Lightning in a Bottle]]. They eventually made it to a large cavern housing a monstrous crab. It towered above the heroes; one claw replaced with an anchor and the remnants of a ship mounted on it's back. It appeared to be sleeping.

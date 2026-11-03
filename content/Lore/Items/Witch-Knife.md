@@ -1,0 +1,1 @@
+A bone knife drawing it's powers from [[Lorelei the Hungry]]. It can be used to empower a spell by ritualistically drawing forth one's own blood.

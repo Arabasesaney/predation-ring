@@ -17,7 +17,7 @@ Burrows
 - [[Sinkhole]]
 
 Hollows
-- [[Crow's Nest]]
+- [[Crows Nest]]
 - [[Bee Hive]]
 - [[Firewasp Hive]]
 

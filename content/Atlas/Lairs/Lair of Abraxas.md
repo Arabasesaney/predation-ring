@@ -1,0 +1,1 @@
+Located in [[Salt Wind Dunes]].

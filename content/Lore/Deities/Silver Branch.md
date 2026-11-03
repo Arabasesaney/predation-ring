@@ -1,1 +1,1 @@
-The barren deity of winter. It's adherents revere knowledge, solitude, and self-reflection.
+The barren deity of winter. It's adherents revere knowledge, solitude, and self-reflection. Once, it favored [[Freya, Chosen of Winter]].

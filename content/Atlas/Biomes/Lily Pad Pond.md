@@ -24,6 +24,7 @@ Vantages
 - [[Whippor Willow]]
 
 Lairs
+- [[Lair of Lorelei]]
 
 
 

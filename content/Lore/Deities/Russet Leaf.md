@@ -1,1 +1,1 @@
-The vibrant maple leaf of autumn. It's adherents revere humility, change, and fortitude.
+The vibrant maple leaf of autumn. It's adherents revere humility, change, and fortitude. It's chosen champion is [[Arthur No-Mane]].

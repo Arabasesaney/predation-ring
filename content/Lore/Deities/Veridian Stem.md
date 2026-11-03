@@ -1,1 +1,1 @@
-The vibrant deity of spring. It's adherents value hope, joy, and new beginnings. 
+The vibrant deity of spring. It's adherents value hope, joy, and new beginnings. [[Hasdrubal]] is it's chosen cleric.

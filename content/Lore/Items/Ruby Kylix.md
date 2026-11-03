@@ -1,0 +1,1 @@
+A shallow drinking cup made from the bones of [[Lorelei the Hungry]]. It converts blood into pure magic essence.
